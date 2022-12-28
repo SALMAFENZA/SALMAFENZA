@@ -1,4 +1,4 @@
-Hola! 😀
+Hola!! 😀
 Mi nombre es Salma Fenza, tal vez me recuerden de series de television cómo Pedro Navajas, el barbero! tengo 23 años, vivo en Argentina, Buenos Aires. pero soy parte del mundo!
 
 Decidí hace un año cambiar mi rumbo laboral ya que creo que el mundo IT me ofrece grandes oportunidades, por lo que pasé de trabajar en el ámbito aeroportuario rodeada de aviones y pasajeros a realizar un bootcamp full stack.
